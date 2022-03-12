@@ -1,4 +1,4 @@
-### 🤠| Moin, ich bin ExothDE 👋
+### 🤠| Moin, ich bin 0x7da 👋
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on NordSeite...
